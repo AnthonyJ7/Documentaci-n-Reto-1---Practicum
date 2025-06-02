@@ -11,4 +11,4 @@ Fecha: 1 de junio del 2025
 
 Fecha: 2 de junio del 2025
 
-09h30 am - 11h30 pm
+09h30 am - 11h30 am
