@@ -7,7 +7,7 @@ Fecha: 1 de junio del 2025
 
 12h30 pm - 14h30 pm
 
-## Sesion 12
+## Sesion 2
 
 Fecha: 2 de junio del 2025
 
