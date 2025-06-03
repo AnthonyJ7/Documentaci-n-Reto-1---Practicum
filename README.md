@@ -12,3 +12,9 @@ Fecha: 1 de junio del 2025
 Fecha: 2 de junio del 2025
 
 09h30 am - 11h30 am
+
+## Sesion 3
+
+Fecha: 3 de junio del 2025
+
+21h30 pm - 23h30 pm
